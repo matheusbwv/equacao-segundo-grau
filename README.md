@@ -1,1 +1,0 @@
-# equacao-segundo-grau
